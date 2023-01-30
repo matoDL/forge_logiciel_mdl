@@ -1,1 +1,1 @@
-la moula donnez moi encore de la moula
+la kichta donnez moi plus de kichta
